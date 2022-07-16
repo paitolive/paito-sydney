@@ -1,2 +1,0 @@
-# paito-sydney
-Paito-sydney
